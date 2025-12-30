@@ -45,3 +45,4 @@ Zobacz szczegóły
 </div>
 </body>
 </html>
+18+ Graj odpowiedzialnie. Hazard może uzależniać.
